@@ -2,7 +2,7 @@
 - 👀 I’m interested in Photography & Design
 - 🌱 I’m currently learning Design
 - 💞️ I’m looking to collaborate on translating apps
-- 📫 Reach me at fb.com/annamir
+- 📫 Reach me at mylink.la/annamir
 
 <!---
 AnNamir2u/AnNamir2u is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
